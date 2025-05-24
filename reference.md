@@ -1,2 +1,0 @@
-- **Reference ⬇️**
-  - [TEXT STROKE ONLINE TUTORIALS](https://youtu.be/ivkh3NlRqUA?si=3Hlq_ZakfRlxmZ_E)
